@@ -1,1 +1,1 @@
-# Learngit
+# Kit24 is very cool
